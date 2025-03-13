@@ -6,7 +6,7 @@ Region: Huila, Colombia
 
 Variety: Arabica
 
-Process: Washed
+Process: The coffee is fully washed and grown between 1,600 and 2,000 meters above sea level. 
 
 Batch: #3
 
@@ -35,6 +35,7 @@ Dates drunk: 2025-02-27 to 2025-03-15
 I had some other coffee I was trying to use up - in hindsight, I should have abandoned that, and switched to this a little earlier to catch it closer to the optimum age for drinking.
 
 - Super clean and fresh cup of coffee.
+- Definitely got the apple tasting note.
 - Bright, lacking in bitterness.
 - Minimal acidity.
 - Ever so slight sourness when under-extracted.
