@@ -1,3 +1,4 @@
+<!-- © Copyright 2025 William Lay. All rights reserved. -->
 # Square Mile - La Estrella Del Ostro
 
 ## On the label
