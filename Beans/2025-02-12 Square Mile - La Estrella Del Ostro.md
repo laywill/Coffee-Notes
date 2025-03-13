@@ -7,7 +7,7 @@ Region: Huila, Colombia
 
 Variety: Arabica
 
-Process: The coffee is fully washed and grown between 1,600 and 2,000 meters above sea level. 
+Process: The coffee is fully washed and grown between 1,600 and 2,000 meters above sea level.
 
 Batch: #3
 
