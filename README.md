@@ -1,2 +1,3 @@
-# Coffee-Notes
-Thoughts on coffee I drink.
+# Coffee Notes
+
+Thoughts on coffee. ☕
