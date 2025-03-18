@@ -35,10 +35,11 @@ Dates drunk: 2025-02-15 to 2025-03-???
 
 This arrived before I had really got to grips with my first bag of Square Mile coffee - in hindsight, I should have upped my dose on that earlier rather than eek it out, and got on to this a little earlier to catch it closer to the optimum age for drinking.
 
-- foo
-- bar
-- baz
+- Red fruit on the nose, but in the same slightly abstract way that you get smelling a red fruits tea
+- Rather than honey, I got more like a very delicate taste of molasses and caramel, especially after swallowing
+- My gut reaction on smelling the contents of the bag was "Like Café Direct Machu Pichu, but so much better"
+  - Guess what my go-to supermarket coffee bean purchase is...
 
 ## Buy Again?
 
-TBC
+I liked this less, but still a delicious cup of coffee, significantly cleaner, lighter roasted, less acidic, less bitter than anything you will find in a supermarket. 
